@@ -1,4 +1,4 @@
-#  
+#  ClickUp for macOS advanced Extension: calendar integration & AI assistant offers the most advanced ClickUp for macOS extension, with calendar integration and AI assistant. Ideal
 
 
 
